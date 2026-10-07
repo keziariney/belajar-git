@@ -1,0 +1,2 @@
+Nama: Kezia
+NIM: 71261249
